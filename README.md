@@ -1,1 +1,1 @@
-CSM-2021-2025---Batch-07
+News Research Tool for Equity Analysis
